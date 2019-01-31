@@ -1,0 +1,1 @@
+This Aplikasi Is Downloaded in http://rajincopas.my.id
